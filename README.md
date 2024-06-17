@@ -12,3 +12,4 @@ ESSE É O MEU TRABALHO 😙
 - 💬 Fale comigo sobre RPG do Cellbit
 - 📫 Como falar comigo: So pedir o zap
 - 😄 Pronomes: Oque voce quiser
+ 
